@@ -8,13 +8,6 @@ For more details, visit my personal website: [othodeng.github.io](https://othode
 
 ---
 
-### 🌏 Experience & Scholarships
-- 🛰️ Research assistant at university's lab, **multiple research experience**
-- 🌦️ Practical forecasting and fieldwork experience at the **Guangdong Provincial Meteorological Observation**
-- 🎓 Sponsored by the **Chinese Government Scholarship** & **Mitacs Globalink Scholarship** for a 2026 research internship at the **University of Prince Edward Island**, Canada
-
----
-
 ### 🎯 Interests
 
 - ✈️ Traveling, hiking, and exploring new places
