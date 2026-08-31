@@ -8,20 +8,20 @@ For more details, visit my personal website: [othodeng.github.io](https://othode
 
 ---
 
-### 🎯 Interests
+### Interests
 
-- ✈️ Traveling, hiking, and exploring new places
-- 📸 Photography — check out my Instagram: [@0ttod3ng](https://www.instagram.com/0ttod3ng)
-- ☕ Strong coffee lover (sometimes tea as well)
-- 🗣️ Language learning — I speak: **English**, **Chinese** (Mandarin & Cantonese), **French**; some Japanese too
-- 🎮 I play **maimai でらっくす** BTW
+- Traveling, hiking, and exploring new places
+- Photography — check out my Instagram: [@0ttod3ng](https://www.instagram.com/0ttod3ng)
+- Strong coffee lover (sometimes tea as well)
+- Language learning — I speak: **English**, **Chinese** (Mandarin & Cantonese), **French**; some Japanese too
+- I play **maimai でらっくす** BTW
 
 ---
 
-### 📬 Connect With Me
+### Connect With Me
 
-- 🌐 **Website:** [othodeng.github.io/](https://othodeng.github.io)
-- ✍️ **Blog:** [ottoqwq.me](https://ottoqwq.me/)
-- 📢 **Academic Telegram Channel:** [t.me/AdolescentDelusions](https://t.me/AdolescentDelusions)
-- 💬 **Daily Telegram Channel:** [t.me/Otttos_daily](https://t.me/Otttos_daily)
-- 📧 **Email:** ottodeng9[at]gmail.com
+- **Website:** [othodeng.github.io/](https://othodeng.github.io)
+- **Blog:** [ottoqwq.me](https://ottoqwq.me/)
+- **Academic Telegram Channel:** [t.me/AdolescentDelusions](https://t.me/AdolescentDelusions)
+- **Email:** ottodeng9[at]gmail.com
+- **LinkedIn** [Kaihuai (Otto) Deng](https://www.linkedin.com/in/othodeng/)
