@@ -1,4 +1,4 @@
-## Hi there, I'm Otto (Kaihuai) Deng 👋
+## Hi there, I'm Kaihuai (Otto) Deng 👋
 
 I'm an undergraduate student majoring in **Atmospheric Science (Hydrometeorology Division)**.
 
